@@ -1,1 +1,1 @@
-Stone Kletecka# uchicago-cs-git-tutorial
+Stone Kletecka CNETID: stoney
